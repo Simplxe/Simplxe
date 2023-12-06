@@ -1,2 +1,2 @@
 # Simplxe
-I'm a noob at programming lol
+I'm a noob at programming :)
